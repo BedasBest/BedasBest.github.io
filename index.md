@@ -7,3 +7,7 @@ This is a very strange road movie from Quentin Tarrantino which will end in a va
 * emotional
 * cool
 * paranoid
+
+
+
+> Everybody be cool - you, be cool!
